@@ -1,1 +1,1 @@
-# Pisomka1_OS
+# Pisomka1_Parkhomuk_OS
